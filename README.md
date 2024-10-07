@@ -6,7 +6,7 @@
 
 ## **Read about the e-shope**
 
-## ++Read about diferent payment methods**
+## **Read about diferent payment methods**
 
 ## **Dilivery**
 
